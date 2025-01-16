@@ -1,10 +1,10 @@
-C00LKIDD PAR0DY ACC
+C00LKIDD PARODY ACC
 
-(very busy / game developing 57% of the time, only whisper if crowning or close friends or if emergency. also pls I dont have a typing quirk im only using o's - 0's for this acc. thats it.)
+(very busy / game developing 57% of the time, only whisper if crowning or close friends or if emergency)
 
-free c*h n0 need t0 ask ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+free c*h u dont have to ask ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 
-(´｡•᎑•`)っ 💕 i l0ve my papa and mama
+(´｡•᎑•`)っ 💕 i love my papa and mama
 
 ![image](https://github.com/user-attachments/assets/7c8d899d-e1ee-46ba-9bc0-876b64425f7b) ![image](https://github.com/user-attachments/assets/23edd7f2-2de6-4e91-b0a4-e4634af65701) ![image](https://github.com/user-attachments/assets/88737d99-74a1-4c73-a0fe-a0bfe8e5b276) ![image](https://github.com/user-attachments/assets/2ffc468a-114a-4cad-8392-8f5ccb7027b0) 
 
