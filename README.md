@@ -3,4 +3,4 @@ C00LKIDD PAR0DY ACC
 
 free c*h n0 need t0 ask ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 
-(´｡•᎑•`)っ 💕 i l0ve my papa 
+(´｡•᎑•`)っ 💕 i l0ve my papa and mama
