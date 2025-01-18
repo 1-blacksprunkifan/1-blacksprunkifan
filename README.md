@@ -2,7 +2,7 @@ C00LKIDD PARODY ACC
 
 (very busy / game developing 57% of the time, only whisper if crowning or close friends or if emergency)
 
-free c*h u dont have to ask ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+free c*h u dont have to ask 😋
 
 (´｡•᎑•`)っ 💕 i love my papa and mama
 
